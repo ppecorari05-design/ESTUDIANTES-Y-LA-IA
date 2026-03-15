@@ -1,2 +1,0 @@
-# ESTUDIANTES Y LA IA
-
